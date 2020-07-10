@@ -1,2 +1,2 @@
-# jeoh
-aku syang kamu
+# mairlah-sinih-
+ayu geas
