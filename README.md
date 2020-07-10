@@ -1,0 +1,2 @@
+# jeoh
+aku syang kamu
